@@ -1,16 +1,18 @@
-## Hi there 👋
+# READ..
+────────୨ৎ────────
 
-<!--
-**nixsuf/nixsuf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*"In the darkest shadows, we tend to miss someone from afar."*
 
-Here are some ideas to get you started:
+⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ⏲️  **HEY HEY HEY! I'm Xin! people call me Xinfu, just call me xin for short :) I'm 16+ , MLM** 
+ 
+   **I love Anaxa and Eyeless Jack, I'm from many fandoms so I am in fact a nerd LMAO**
+
+   →﹐ ⛩ ﹒ *dont ever be a stranger.*﹒⟢
+
+   ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐#一緒
+    -> usually offtab/ afk. I dont mind C+H and W2i! please lmao dont be sfraid to spproach me :)
+
+
+    
