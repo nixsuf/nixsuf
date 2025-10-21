@@ -14,5 +14,4 @@
    ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐#一緒
     -> usually offtab/ afk. I dont mind C+H and W2i! please lmao dont be sfraid to spproach me :)
 
-
-    
+    ![Image](https://github.com/user-attachments/assets/71c01d44-33d6-47cb-8509-af49b788cf84)
